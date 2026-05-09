@@ -1,4 +1,4 @@
-
+Lunacy for macOS ultimate Extension: layer styles & non-destructive editing is the best Lunacy for macOS extension, featuring layer styles and non-destructive editing. Safe,
 
 
 
